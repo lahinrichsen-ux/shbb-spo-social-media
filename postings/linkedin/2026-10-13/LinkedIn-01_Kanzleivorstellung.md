@@ -1,7 +1,8 @@
 # LinkedIn 01 – Kanzleivorstellung
-Veröffentlicht: 13.10.2026, 10:15 Uhr · Unternehmensseite SHBB St. Peter-Ording · via Buffer
-Link: https://www.linkedin.com/feed/update/urn:li:share:7515686651352809472
-Bild: linkedin-01_strand-holztor_1080x1350.jpg (ohne Vorlage B; Vorlage B ab Beitrag 02)
+Veröffentlicht: 13.10.2026, 10:30 Uhr · Unternehmensseite SHBB St. Peter-Ording · via Buffer (Neuveröffentlichung mit Vorlage B)
+Link: https://www.linkedin.com/feed/update/urn:li:share:7515690312250310656
+Bild: linkedin-01_variante-B_bearbeitet.png (Vorlage B Sprechblase, Bildlook)
+Erstversion 10:15 Uhr (nur Foto, urn:li:share:7515686651352809472) – auf LinkedIn zu löschen
 Erster Kommentar: Auch auf Instagram: https://www.instagram.com/shbb_spo/
 
 ## Text
