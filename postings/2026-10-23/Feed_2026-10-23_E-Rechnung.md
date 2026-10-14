@@ -18,7 +18,7 @@ Kurz zur Pflicht (Stand: 23.10.2026):
 • darunter: Übergang bis 31.12.2027, ab 2028 gilt die Pflicht für alle
 • Ausnahmen u. a. Kleinbetragsrechnungen bis 250 € und Kleinunternehmer
 
-Bei uns begleitet Michaela die Umstellung und die Prozessberatung. Fragen? info@spo.shbb.de
+Bei uns begleitet Michaela die Umstellung und die Prozessberatung. Fragen? info @ spo.shbb.de
 
 Allgemeine Information, keine Einzelfallberatung.
 
